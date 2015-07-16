@@ -8,4 +8,4 @@ It’s been proved by history that you cannot forget about the principles, and t
 
 Offline reality has been criticized for being slow, characteristic that cannot be denied, but also must of the time it’s most trustworthy. The most influential thing in the importance of offline reality is that people take more into account a newspaper than any website.  In online reality we face to a created identity, the person you are online might not be you, but it is who you decide to be, and sometimes, that identity follows you everywhere, taking all what you have told to the web, and turning you into sequence that show you what they think you are interested on, but maybe it is not based in who you really are.
 
-Running ads entirely on radio will give marketers a good portion of the local commuter audience, but a growing number of people will get their morning music and news from an app. Using banner ads that are available on generic apps or the specific audio and visual apps possible on internet radio apps helps to ensure that marketers reach a larger percentage of their target audience. .
+
